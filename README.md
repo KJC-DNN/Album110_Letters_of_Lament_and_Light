@@ -1,6 +1,5 @@
 # Album 110 — Letters of Lament and Light
 Letters of Lament and Light (புலம்பலும் ஒளியும்)
-# Intercession from the Book of Prayers — Album 110
 
 Prayer letters turned into intercession. Spoken, sung, storied, and layered. Lament and light. Tamil and English. Jesus Christ is the Eternal King. His kingdom has no end.
 
